@@ -1,0 +1,1 @@
+Nebud blba a nezapominej hesla
